@@ -1,4 +1,4 @@
-# 
+# Ultimato 30+ AI Projects at UQAC plugins. Com reconhecimento de imagens e IA em nuvem — otimizado para máximo desempenho.
 
 
 
